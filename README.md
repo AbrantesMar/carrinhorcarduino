@@ -39,5 +39,8 @@ https://www.youtube.com/watch?v=ZAKyxNs2uuA&t=1101s
 
 Link para controle remoto no celular:
 https://play.google.com/store/apps/details?id=braulio.calle.bluetoothRCcontroller&hl=pt_BR
+
+
+<a href="https://www.banggood.com/Eachine-SpeedyBee-SEC-13-CCD-600TVL-2_3mm-FOV-145-Degree-Mini-FPV-Camera-With-OSD-For-RC-Drone-p-1242501.html?utm_campaign=1242501&utm_content=east&p=7S162017298140201712&bid=41608&utm_design=54" target="_blank"><img src="http://img.banggood.com/deals/affiliate_member_banner/e9bbcc76e4c32d0a1276efc5e6c1d6c878.jpg" /></a>
  
  
